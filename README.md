@@ -1,0 +1,2 @@
+# mindgumindex
+metaverse index 
